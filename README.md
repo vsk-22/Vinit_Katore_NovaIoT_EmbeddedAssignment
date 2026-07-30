@@ -1,0 +1,1 @@
+# Vinit_Katore_NovaIoT_EmbeddedAssignment
